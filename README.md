@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...web development ,AI and Cybersecurity
 - 🌱 I’m currently learning ,developing and innovating 
 - 💞️ I’m looking to collaborate on ...any project related to my interests or outside my interests
-- 📫 How to reach me ...Makoriestar0@gmail.com
+- 📫 How to reach me ...makoriestar0@gmail.com
 - 😄 Pronouns: ...she/her
 - ⚡ Fun fact: ...the first computer virus "Elk cloner",spread through floppy disksin 1983
 
