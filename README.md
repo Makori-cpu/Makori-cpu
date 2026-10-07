@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Makori-cpu
-- 👀 I’m interested in ...web development
+- 👀 I’m interested in ...web development ,AI and Cybersecurity
 - 🌱 I’m currently learning ,developing and innovating 
 - 💞️ I’m looking to collaborate on ...any project related to my interests or outside my interests
 - 📫 How to reach me ...Makoriestar0@gmail.com
